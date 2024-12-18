@@ -1,0 +1,2 @@
+# pensamento
+pessoa pensando 
